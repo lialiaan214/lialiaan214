@@ -9,7 +9,7 @@ You will see NSFW content.<br />Do you want to continue?
  </span>
 </span></span><div><span style="font-family: arial; font-size: x-large;"><br /></span></div>
 <div style="background-color: dodgerblue; border-radius: 3px; padding: 6px; text-align: center; width: 25%;"> <div><b><span style="font-size: x-large;">
-<a href="https://www.xselebgram.xyz/2022/" rel="noopener" target="_blank"><span style="color: white;">Yes</span></a></span></b></div></div>
+<a href="https://www.teteh-ingga.my.id/2023/" rel="noopener" target="_blank"><span style="color: white;">Yes</span></a></span></b></div></div>
 <span style="font-size: x-large;"><br />
 </span><div style="background-color: red; border-radius: 3px; padding: 6px; text-align: center; width: 25%;"> <div><b><span style="font-size: x-large;">
 <a href="https://www.xselebgram.xyz" rel="noopener" target="_blank"><span style="color: white;">No</span></a></span></b></div></div></div></center></div></div></center>
@@ -136,6 +136,7 @@ ads by Adsterra<br />
 <iframe width="100%" height="524" src="https://www.youtube.com/embed/l0ZuQRcXbyg" title="Mondello Beach Palermo Sicily Italy 🇮🇹 4K Walking Tour 2022" frameborder="0" allow="accelerometer; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 </div>
+
 
 
 
